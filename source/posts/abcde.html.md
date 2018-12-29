@@ -13,8 +13,6 @@ ygef curyf uyv vyuoyv uyv luhv luhvlul.
 * sfhsfghsfhg
 * fghsfghssfgh
 
-![](/images/uploads/eyefb-1553789_960_720.jpg)
-
 jhgkhgjgkgkufkhgfkfkhfkh.
 
 ## jhkjhkhkhkjh
